@@ -1,8 +1,8 @@
-#Presentacion  
+# Presentacion 😎
 
 -Nombre completo: Ivan Leonel Ales
 -legajo: 2088629
-Me gusta jugar al lol y al futbol. Soy bastante hiperactivo, osea que no me puedo quedar quieto pero en general soy buena onda. 
+Me gusta jugar al lol y al futbol. Soy bastante hiperactivo, osea que no me puedo quedar quieto pero en general soy buena onda ⚽🎮 :)
 
 
 
