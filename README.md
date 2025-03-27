@@ -9,6 +9,7 @@
 
 
 
+![yo jpg](https://github.com/user-attachments/assets/39b5c03e-d1fc-49a5-bc68-d3b164388b8e)
 
 
 
@@ -26,7 +27,4 @@
 
 
 
-
-
-
-  <sup><sup><sup><sup><sup><sup><sup><sub><sub>La mejor materia es Algebra.</sub></sub></sup></sup></sup></sup></sup></sup></sup>
+  <sup><sup><sup><sup><sup><sup><sup><sub><sub>Aguante Algebra.</sub></sub></sup></sup></sup></sup></sup></sup></sup>
